@@ -1,6 +1,7 @@
 
+![xv](https://github.com/manju-20/JobPortal/assets/120158388/52509a56-481b-450f-bb46-a8a6a9d1173c)
 
-![Uploading xv.png…]()
+
 
 
 
